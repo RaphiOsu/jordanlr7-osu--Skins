@@ -18,7 +18,7 @@
 
 
 # [DT - - Hey DT Purple Ryuk edit -](https://jordanlr7.s-ul.eu/c89oJDtQ)
-![](https://jordanlr7.s-ul.eu/c89oJDtQ)
+![](https://cdn.discordapp.com/attachments/666927196782460948/729304763572813824/screenshot437.png)
 
 
 
